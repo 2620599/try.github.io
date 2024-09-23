@@ -11,3 +11,6 @@ Siku ya Jumapili, Waziri Mkuu Benjamin Netanyahu alisema Israel itachukua "hatua
 Alisema Israel imetoa "msururu wa mapigo kwa Hezbollah ambayo haijawahi kufikiria". Lakini naibu kiongozi wa kundi hilo Naim Qassem alitangaza: "Vitisho havitatuzuia... Tuko tayari kukabiliana na uwezekano wote wa kijeshi".
 
 Akizungumza katika mazishi ya Ibrahim Aqil, kamanda wa ngazi za juu wa Hezbollah aliyeuawa katika shambulio la Ijumaa la Israel katika mji mkuu wa Lebanon, Beirut, alisema: "Tumeingia katika awamu mpya, yaani mapambano ya wazi" na Israel.
+
+
+Mtaki Mtaki
